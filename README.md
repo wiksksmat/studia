@@ -1,1 +1,1 @@
-# studia- rezczy na studia
+# studia- rzeczy na studia
