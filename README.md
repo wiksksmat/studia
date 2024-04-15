@@ -1,0 +1,1 @@
+# studia- rezczy na studia
